@@ -152,7 +152,7 @@ Once fully treated, it should be possible to gently pull the hair out with tweez
 
 [Choose the Needle Size to Match or Exceed the Diameter of the Hair Being Treated](https://synopticproducts.com/2018/05/17/needle-size-and-electrolysis/)
 
-[Electrology Now on Youtube](https://www.youtube.com/channel/UCAxzAWBSrxvWhgLeL4nhS_w)
+[Electrology Now on YouTube](https://www.youtube.com/channel/UCAxzAWBSrxvWhgLeL4nhS_w)
 
 [FAQ: Galvanic Electrolysis ](https://auroraelectrolysis.com/galvanic-electrolysis/)
 
